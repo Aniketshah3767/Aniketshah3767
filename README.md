@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **DSA**
 
-- 📫 How to reach me **aniketghp@gmail.com**
+- 📫 How to reach me **aniketsah2024@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
